@@ -1,4 +1,4 @@
-# GTA San Andreas APK (MOD Mediafire) Download Grátis última versão 2025
+# GTA San Andreas APK (MOD Mediafire) Download Grátis Última versão 2025
 O GTA San Andreas APK é a adaptação mobile do clássico jogo de mundo aberto desenvolvido pela Rockstar Games. O APK permite que jogadores aproveitem toda a essência de Grand Theft Auto: San Andreas em dispositivos Android. Com gráficos otimizados e controles adaptados para telas sensíveis ao toque, o jogo traz a mesma narrativa cativante que conquistou milhões no console e no PC.
 ## 🌈🌈🔗 Link Download: [GTA San Andreas APK](https://gta-san-andreas-apk.apktudo.com) 🌈🌈🔗
 ## 👉📌 Junte-se à comunidade APKTudo para baixar os jogos mais recentes gratuitamente: [Aqui](https://t.me/apktudo)
